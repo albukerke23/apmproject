@@ -1,5 +1,3 @@
 # apmproject
 
-gcgtytdy
-for 
-djdhid
+ver berm isso
